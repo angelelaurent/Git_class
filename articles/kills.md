@@ -10,7 +10,7 @@ their fifth and most recent studio album was released on June 3, 2016 and reache
 
 ## My favorite album
 
-![Cover](No-wow.jpg)
+![Cover](articles/No-wow.jpg)
 
 "Love is a Deserter" was released as a single and obtained limited play on several music channels. "The Good Ones" was later released and peaked at number 23 in the UK charts.
 
