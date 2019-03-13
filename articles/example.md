@@ -12,3 +12,5 @@ their fifth and most recent studio album was released on June 3, 2016 and reache
 ![Cover](No-wow.jpg)
 
 You will find information on The Kills [here](https://en.wikipedia.org/wiki/The_Kills))
+
+###### Angele Laurent
